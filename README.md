@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial Intelligence
 - 🌱 I’m currently learning the foundations of C
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me dhlahsukdh@gmail.com
+- 📫 How to reach me dhkushaldh@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
